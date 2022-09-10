@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @YasithBimsara
+- 👀 I’m interesting in chess
+- 🏫 My school is Bandaranayake College, Gampaha
+- I am 12 years old.
